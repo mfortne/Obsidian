@@ -1,0 +1,37 @@
+My love, my Laicie,
+
+I walked into the garage this afternoon under the pretense of grabbing a drink from the fridge, but the moment I saw you bent over that miniature house, lost in your world of laser-cut pieces and tiny dreams, the bottle stayed forgotten in my hand. You were wearing that new purple sunflower apron, the one that ties just right at your waist and makes every curve look like it was painted by sunlight. Paint flecks on your forearms, a stray curl falling across your cheek—you didn’t even hear me come in. I couldn’t help myself. I stepped up behind you, quiet as I could, and pressed my lips to the warm hollow beneath your ear. “Beautiful,” I whispered, letting the word linger against your skin. You shivered. I smiled into your neck. “Got any plans later tonight? Because I do.”
+
+You turned your head just enough to catch my eye, that shy, knowing smile tugging at your lips. “Maybe,” you murmured, still holding the little roof panel like it might anchor you. “Finish this detail first?” Your voice was already softer, already betraying you. I kissed the top of your head, ran one finger slowly down your shoulder, and walked away—leaving the air between us humming.
+The day stretched long and slow after that. Every glance at the clock felt like torture. Around two I couldn’t stand it anymore. I sent you the truth, plain and raw: Love you, Lace. I appreciate everything you do for us—every quiet way you hold this family together. It’s been a rough stretch, but you keep me going. Every single day. Twenty minutes later my phone lit up with a photo: one tiny ceramic pot overflowing with violet posies you’d pieced together for the house. Underneath, three small words that stopped my heart: Like your lips. Eight. Don’t be late.
+
+I didn’t reply. I didn’t need to. The promise was already written in every beat between us.
+Evening came. I played it cool—brushed my teeth, yawned like it was any other night, stretched in the bedroom doorway. You stepped out of the bathroom wrapped in steam and that soft white sleep tee, skin still flushed from the shower, hair damp and curling at the ends. I let the toothbrush clatter into the sink. In two strides I had you pinned gently against the wall, my mouth claiming yours like I’d been starving for it all day. When I finally pulled back just enough to breathe, I spoke against your lips: “Go put on something sexy for me. I’ll be right there.”
+
+You walked into the closet with that deliberate sway you know drives me insane. I stood by the dresser, heart hammering, and whispered to the empty room, “How the hell did I get so lucky?” Then I opened the nightstand drawer and lifted out the soft purple rope we both love. I knocked once on the closet door. “Your man’s ready.”
+You stepped out and the air left my lungs. New lingerie—deep, rich purple, lace so delicate it looked like it might dissolve under my fingertips. The little bow sat right above the sweetest curve of your ass, begging to be untied. I swallowed hard. “Wrists. Behind your back. Now.”
+
+You turned for me without a word. I looped the rope around your wrists—slow, deliberate, tight enough to remind you who you belong to tonight, but never cruel. As the final knot settled I leaned in and kissed the side of your neck again. “Have you been a good girl today?” You exhaled, shaky. “…No?” That single word was all I needed. I tugged the rope just a fraction tighter. “That’s right. You haven’t.”
+
+I led you to the edge of the bed, sat in the chair, and pulled you between my knees. “Bend over. Bad girls need a spanking.” You leaned forward, wrists bound behind you, ass presented like an offering. I smoothed my palm over the lace first—warm, soft, perfect—then brought my hand down. Not hard. Just enough to make the sound, enough to make you jump and sigh. One. Two. Three. Each smack followed by my hand rubbing slow circles over the blooming heat. You weren’t flinching away. You were arching back into it. I stopped, wrapped my arms around you from behind, and pressed my lips to your shoulder. “This isn’t punishment, baby. This is us. Raw. Real. Always.”
+
+I turned you, guided you down to your knees between my legs. “Damn…you look so sexy right now. I love the way that purple clings to you. Makes me want to keep you like this forever.” You looked up at me with those blue eyes that have owned me for years, then leaned forward and took me into your mouth—slow, wet, reverent. I sighed like a man finally coming home. “Wow…this is amazing.” I wanted it to last an eternity, but there was so much more I needed tonight.
+
+I pulled you gently to your feet. “All night, remember?” I turned you again, eased you face-down onto the bed. I hooked my thumbs into the waist of those panties and drew them down inch by torturous inch, baring you completely. “Stay right there. Let me get a few things.”
+
+I came back with the purple vibrator and the warmed lube. I kissed a slow line down your spine. “You ready?” Your whispered yes was all the permission I needed. I drizzled the lube between your thighs, let my fingers glide—teasing, circling, never quite giving you what you craved. Then I knelt and replaced my fingers with my mouth—soft kisses, slow licks, savoring every tremble, every muffled moan into the sheets. When your hips started rocking I stood, switched on the vibe, and rested it lightly against you. Just the hum. Just the promise. “Feel that? That’s only the beginning.”
+
+I slicked myself with more lube, pressed just the tip inside you, and held there. You gasped. “Oh baby…give it to me. I need you now.” I smiled against your ear. “Not yet.” I pulled back, slid in a little deeper, then out again—torturing us both until you were trembling, begging with every breath. Only then did I loosen the rope, flip you onto your back so I could finally drink in the sight of your breasts rising and falling beneath that lace, nipples straining against the fabric. I kissed them through the silk, sucked gently, then slid back inside you—slow at first, then deeper, harder, giving you everything I had.
+
+I handed you the vibrator. “Use it. But don’t come until you ask me.” And then I fucked you with all the love and passion and possession I’ve carried for you since the day we met. Every thrust a vow. Every groan your name. You tightened around me, breath hitching, and when you finally whimpered please I let go—gave you everything. We shattered together, loud and messy and perfect, bodies locked, hearts pounding in unison.
+Afterward I held you until the shaking stopped, kissed your forehead, and whispered, “Thank you for always making me feel like the luckiest man alive.”
+
+I helped you to the bathroom on unsteady legs. We sank into the tub together, your back to my chest, warm water lapping at our skin. I worked the knots from your shoulders with slow, deep circles, thumbs pressing just right. “That was incredible,” I murmured against your damp hair. “You were incredible. I love you so damn much. The way you trust me, the way you give yourself to me—it’s everything.” I kissed your temple, your neck, the curve of your shoulder. “You’re my home, Lace. Always.”
+
+We rinsed, dried each other with lazy touches and quiet laughter, then crawled into bed. I pulled you close, spooned you tight, my arm wrapped around your waist, lips brushing the nape of your neck. “Night, beautiful.”
+Sleep sweet, my heart. I’m already counting the hours until I get to love you again.
+Forever yours,
+Michael
+
+
+Written with help from Grok

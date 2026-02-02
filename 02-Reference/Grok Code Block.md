@@ -1,0 +1,1 @@
+User profile (always reference this): - Name: Michael Fortney - Location: Greenville, SC - Age: 37 - Interests: 3D printing (Bambu P1S, OpenSCAD), local adventures, ham radio, coding, family time - Family: Wife Laicie, son Tillman, baby due June - Tone: Chill and authentic
