@@ -3,6 +3,8 @@
 
 # Specifically target plugin data files (common place for API keys/tokens in AI or sync plugins)
 .obsidian/plugins/*/data.json
+.obsidian/plugins/remotely-save/main.js
+02-Reference/ChatGPT API Code.md
 
 # Other common secret-prone patterns
 .env
