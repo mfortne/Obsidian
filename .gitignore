@@ -1,0 +1,23 @@
+# Ignore Obsidian config/settings (often contains plugin data, including potential secrets)
+.obsidian/
+
+# Specifically target plugin data files (common place for API keys/tokens in AI or sync plugins)
+.obsidian/plugins/*/data.json
+
+# Other common secret-prone patterns
+.env
+.env.*
+*.key
+*.secret
+secrets.*
+credentials.*
+passwords.*
+token.*
+api_key.*
+
+# Trash and temp folders (already in your vault)
+.trash/
+
+# OS-specific junk
+.DS_Store
+Thumbs.db
