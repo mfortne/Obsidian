@@ -1,3 +1,15 @@
+Minimize Tokens:
+### Quick Cheat Sheet (save this somewhere)
+
+| Goal                          | Add to prompt                         | Expected effect                  |
+| ----------------------------- | ------------------------------------- | -------------------------------- |
+| Shortest possible answer      | “one sentence” or “short”             | Very concise reply               |
+| Structured & compact          | Use bullets or table in your question | Reply stays in list/table format |
+| No chit-chat / fluff          | “no intro, straight to answer”        | Skips pleasantries               |
+| Reuse context                 | Refer to “earlier” / “previous”       | Saves repeating background       |
+| Compress previous long answer | “summarize” / “shorter version”       | Cheap way to shrink output       |
+
+
 _I’m going to ask you a question in my next message. Before responding, I want you to think through your answer carefully using all tools and reasoning available to you._
 _1. Plan silently: Map out the question, consider relevant facts, outline your reasoning path, and note any assumptions or missing information.  
 2. Verify: Use your internal tools—code interpreter, web search (if available), and data analysis—to fact-check key details and ensure accuracy.  
