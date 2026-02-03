@@ -13,15 +13,30 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "2026-02-02 Daily Note.md",
+                "file": "02-Reference/OpenClaw/Daily/2026-02-02 Daily Note.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
               "title": "2026-02-02 Daily Note"
             }
+          },
+          {
+            "id": "a5e2e611b1298272",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2026-02-03 Local LLM Model Notes.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "2026-02-03 Local LLM Model Notes"
+            }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -185,10 +200,12 @@
       "templater-obsidian:Templater": false
     }
   },
-  "active": "2cc8a5e7d9fc4d1e",
+  "active": "a5e2e611b1298272",
   "lastOpenFiles": [
+    "02-Reference/OpenClaw/Daily/2026-02-02 Daily Note.md",
+    "2026-02-03 Local LLM Model Notes.md",
+    "02-Reference/OpenClaw/2026-02-02 Setup Notes.md",
     "05-Templates/Daily Template.md",
-    "2026-02-02 Daily Note.md",
     "Untitled.md",
     "02-Reference/Grok Code Block.md",
     "02-Reference/NotebookLM.md",
@@ -213,8 +230,6 @@
     "01-Daily Notes/2025-10-07 Daily.md",
     "02-Reference/01-Ham/2025-10-01 Ham Radio Equipment.md",
     "01-Daily Notes/2025-09-29.md",
-    "02-Reference/01-Ham/2025-09-17 Ham Training.md",
-    "02-Reference/5 python scripts.md",
     "Reference",
     "09-Adult",
     "05-Templates",
