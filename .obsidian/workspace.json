@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "02-Reference/Chatgpt tips.md",
+                "file": "02-Reference/OpenClaw/AI Soul Doc.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chatgpt tips"
+              "title": "AI Soul Doc"
             }
           }
         ]
@@ -185,8 +185,12 @@
       "templater-obsidian:Templater": false
     }
   },
-  "active": "2cc8a5e7d9fc4d1e",
+  "active": "cca0ea041b9a87bf",
   "lastOpenFiles": [
+    "README.md",
+    "Untitled.md",
+    "02-Reference/Grok Code Block.md",
+    "02-Reference/Chatgpt tips.md",
     "sync.ffs_lock",
     "02-Reference/OpenClaw/Options Strategy.md",
     "02-Reference/OpenClaw/Daily/2026-02-02 Daily Note.md",
@@ -194,8 +198,6 @@
     "2026-02-03 Future of Frank.md",
     "02-Reference/OpenClaw/2026-02-02 Setup Notes.md",
     "05-Templates/Daily Template.md",
-    "Untitled.md",
-    "02-Reference/Grok Code Block.md",
     "02-Reference/NotebookLM.md",
     "02-Reference/Resume tips.md",
     "Welcome.md",
@@ -210,7 +212,6 @@
     "Pasted image 20250614165759.png",
     "02-Reference/Open source programs.md",
     "02-Reference/Learn local LLM.md",
-    "02-Reference/Chatgpt tips.md",
     "01-Daily Notes/2026-01-21 Daily Note.md",
     "01-Daily Notes/2026-01-15 Daily Note.md",
     "01-Daily Notes/2025-12-13 Random.md",
