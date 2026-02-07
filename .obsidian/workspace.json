@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "02-Reference/OpenClaw/AI Soul Doc.md",
+                "file": "02-Reference/OpenClaw/Basic Options.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "AI Soul Doc"
+              "title": "Basic Options"
             }
           }
         ]
@@ -185,8 +185,11 @@
       "templater-obsidian:Templater": false
     }
   },
-  "active": "cca0ea041b9a87bf",
+  "active": "2cc8a5e7d9fc4d1e",
   "lastOpenFiles": [
+    "02-Reference/OpenClaw/Options Strategy.md",
+    "02-Reference/OpenClaw/Basic Options.md",
+    "02-Reference/OpenClaw/AI Soul Doc.md",
     "02-Reference/OpenClaw/OriginalSOUL.md",
     "02-Reference/OpenClaw/SOUL.md",
     "README.md",
@@ -194,7 +197,6 @@
     "02-Reference/Grok Code Block.md",
     "02-Reference/Chatgpt tips.md",
     "sync.ffs_lock",
-    "02-Reference/OpenClaw/Options Strategy.md",
     "02-Reference/OpenClaw/Daily/2026-02-02 Daily Note.md",
     "2026-02-03 Local LLM Model Notes.md",
     "2026-02-03 Future of Frank.md",
@@ -214,8 +216,6 @@
     "Pasted image 20250614165759.png",
     "02-Reference/Open source programs.md",
     "02-Reference/Learn local LLM.md",
-    "01-Daily Notes/2026-01-21 Daily Note.md",
-    "01-Daily Notes/2026-01-15 Daily Note.md",
     "Reference",
     "09-Adult",
     "05-Templates",
